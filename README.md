@@ -7,4 +7,4 @@
 >Name: Tomas Medeot Medrano  
 >Birth: 02/12/2003  
 >Place: Cordoba, Cordoba, Argentina  
->For more visit my linkedin: [Linkedin]('https://www.linkedin.com/in/tomas-medeot-medrano-a457b4185/')
+>For more visit my linkedin: [Linkedin]('https://www.linkedin.com/in/tomas-medeot-medrano-a457b4185/')  
